@@ -4,7 +4,7 @@
 
 ### aluno
 
-**aluno JK**✨ _sou bi_ ✨
+**aluno JK**✨ _sou gostoso_ ✨
 
 Here are some ideas to get you started:
 
